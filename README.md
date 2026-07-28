@@ -79,6 +79,8 @@ When I'm not working on technology projects, you can usually find me:
 - 🎵 Listening to music and discovering new artists.
 - 💡 Exploring new technology, gadgets, and software.
 - 📚 Learning something new whenever I can.
+- 🤖 I enjoy experimenting with new technology and AI tools.
+- 🧩 I love solving problems and figuring out how things work.
 
 ## 📫 How to Reach Me
 
@@ -88,14 +90,6 @@ When I'm not working on technology projects, you can usually find me:
 ## 😄 Pronouns
 
 She/Her
-
-## ⚡ Fun Facts
-
-- 🏈 New England sports fan.
-- 🎮 Gaming is one of my favorite ways to relax.
-- 🎧 Music is a big part of my everyday life.
-- 🤖 I enjoy experimenting with new technology and AI tools.
-- 🧩 I love solving problems and figuring out how things work.
 
 ## 📈 Current Goals
 
