@@ -48,7 +48,7 @@ I'm a **Programming & Systems Analysis graduate** interested in software develop
 - Email: rebekanyambati1@gmail.com
 
 ## 🎮 Outside of Tech
-
-- 🏈 Following New England sports
-- 🎮 Gaming
-- 🎵 Discovering new music
+- 🏈 Following sports
+- 🎮 Playing video games
+- 🎵 Listening to music
+- 🎬 Watching movies
